@@ -14,10 +14,10 @@ not a big deal , his dad wanted him to be doctor, well he didn't have faith in t
 
 he decided to take computer science after failing JEE, his mind was far stable and better than before. he had a good faith he will make his life great, and also came to conclusion, 
 
-GOD DOESN'T EXIST 
-IT'S MADE FOR WEAK 
-RELIGION AND PATRIOTISM IS MADE SO HIGHER POWER CAN CONTROL THE WEAK
-AND BOTH IF THEM ARE SIGN IF LOW INTELLIGENCE 
+GOD DOESN'T EXIST. 
+IT'S MADE FOR WEAK. 
+RELIGION AND PATRIOTISM IS MADE SO HIGHER POWER CAN CONTROL THE WEAK,
+AND BOTH OF THEM ARE SIGN OF LOW INTELLIGENCE.
 
 starting of the semester got him , somehow he managed to climb up , minecraft and other games got his attention, got him intrested in tech and programs 
 
