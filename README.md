@@ -57,9 +57,4 @@ I'll be updating stuff here about how I feel and my progress on whatever I'm try
 
 # 19 Sept 2025
 
-i think I'm going to snap. 
-I'm going insane 
-my body and mind is full of hatred.
-I'm confused and don't know what's going to happen with me .
-
 I seek a guide , person who can guide me. 
